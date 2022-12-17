@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gladsonizidoro
-- 👀 I’m interested in friends who like to be happy
+- 👀 I’m interested in people who use technology as a transformation tool
 - 🌱 I’m currently learning UX/UI Design...
 - 📫 Will come to me accessing my https://www.linkedin.com/in/gladsonizidoro/ ...
 
